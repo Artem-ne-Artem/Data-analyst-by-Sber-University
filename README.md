@@ -1,1 +1,1 @@
-### Курс Data analystот Sber University
+### Курс Data analyst от Sber University
